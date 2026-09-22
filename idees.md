@@ -1,4 +1,4 @@
-Première idée pour Customer Value
+Première idée : clarifier la proposition de valeur (Customer Value) par segment client
 Première idée pour Earned growth
 Deuxième idée pour Customer Value
 Deuxième idée pour Earned growth
